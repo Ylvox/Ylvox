@@ -8,6 +8,6 @@
 
 - Hi, I'm @Ylvox
 - Still learning
-- Languages i already used / still learning
+- Languages i've used / still learning
     - Java, C, HTML, CSS
 - Wanna talk? this is my telegram @Ylvox
