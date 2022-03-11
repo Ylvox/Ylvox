@@ -1,0 +1,5 @@
+- Eae, sou o @Ylvox
+- Continuo aprendendo
+- Linguagens que ja usei / estou aprendendo:
+    - Java, C, HTML, CSS
+- Quer chamar? cola la no telegram @Ylvox
