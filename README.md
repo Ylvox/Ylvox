@@ -4,6 +4,8 @@
     - Java, C, HTML, CSS
 - Quer conversar? cola la no telegram @Ylvox
 
+.
+
 - Hi, I'm @Ylvox
 - Still learning
 - Languages i already used / still learning
